@@ -1,2 +1,1 @@
-# Responsi-UAS-PAM
-responsi uas program aplikasi mobile tentang berita
+Ada Pertanyaan Seputar Project ini silakan Langsung Chat FB Resmi saya : https://www.facebook.com/muhammadsufiaulia
